@@ -1,2 +1,3 @@
 # 48-INTRA-ASPER-WD-10
-Nihaal Kathal, FAIZANUDDIN KHAN
+Nihaal Kathal, Piyush Ratalani
+
